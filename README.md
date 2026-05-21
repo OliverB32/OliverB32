@@ -1,3 +1,0 @@
-- 👋 Hi, I’m Oliver
-- 👀 I’m interested in Video Games and Computers
-- 📫 Discord: driftt. 
